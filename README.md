@@ -1,4 +1,3 @@
-## Welcome to GitHub Pages
 
 Dedicated and meticulous independent contractor with a stellar record of client satisfaction. Extremely mindful of and knowledgeable about all copyright standards and infringement laws. Able to handle multiple projects simultaneously with accuracy and efficiency.
 
